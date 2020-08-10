@@ -4,4 +4,4 @@
 
 رابط المقالة 
 
-http://malawad.com/?p=500
+http://ai.malawad.com/%d8%b4%d8%a8%d9%83%d8%a7%d8%aa-%d8%a7%d9%84%d8%ae%d8%b5%d9%88%d9%85%d8%a9-%d8%a7%d9%84%d8%aa%d9%88%d9%84%d9%8a%d8%af%d9%8a%d8%a9/
